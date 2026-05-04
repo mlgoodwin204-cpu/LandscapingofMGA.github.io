@@ -1,1 +1,0 @@
-# LandscapingofMGA.github.io
